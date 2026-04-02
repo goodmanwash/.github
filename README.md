@@ -1,2 +1,2 @@
 # .github
-You need to organize your money 💰
+We take care of your fabric
